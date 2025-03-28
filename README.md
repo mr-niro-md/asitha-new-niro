@@ -1,2 +1,2 @@
-# ASITHA MD PAIR VEB 🔥
+# PAIR VEB 🔥
 https://asitha.top/pair
